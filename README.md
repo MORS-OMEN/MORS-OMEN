@@ -1,15 +1,2 @@
 <p align="center"> 
-$\color{hsl(0,100%,50%)}{\textsf{ＫＩＬＬ ＴＨＥ ＳＮＩＴＣＨ}}$
-   </p>
-  <p align="center"> 
- $\color{hsl(0,100%,50%)}{\textsf{' ＩＭ ＹＯＵＲＥ ＫＡＭＡＫＡＺＥ ＰＬＡＹＢＯＹ '}}$
- </p>
-<p align="center"> 
-<img src="https://github.com/user-attachments/assets/56d9c334-f46e-4740-b382-0a5f00a86c2b" />
-  </p>
-<p align="center"> 
-<img src="https://github.com/user-attachments/assets/55141117-1e68-4075-90a8-8869d06759fe" />
-</p>
-<p align="center"> 
-<img src="https://github.com/user-attachments/assets/56d9c334-f46e-4740-b382-0a5f00a86c2b" />
-</p>
+Why don't you address me? Why don't you address the very reasonable concerns I raised about you and similar people engaging in incestuous and pedophilic topics with minors on the safe server. it doesn't matter that it's a "space meant for everyone". minors aren't allowed on the 18+ server so they go to the safe one instead, meaning that the majority of people there are very likely minors. why don't you address that it's weird seeking out other people like you on a server mostly populated by minors. ignoring me only proves my point that you know it's weird and borderline predatory. You and others like you are normalizing these topics to impressionable and likely traumatized teenagers, that is predatory. address me.
